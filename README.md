@@ -18,3 +18,22 @@ Status:
 
 
 ![Tumblr_l_267999079496566](https://github.com/user-attachments/assets/23888a0f-f005-44fd-9303-453156c66561)
+
+
+Jonah/Jia Huan; YOU'RE SO COOL MY HOMIE HOME BOY!!!!!!!! IM RLLY GLAD I MET YOU GNGALANG!!!!!!
+
+Redact/Redacted; YOU'RE ALSO REALLY COOL TWIH WHEN YOU LOWKENUINLY CATCH ME AND TWIN IN FLOW STATE!!!
+
+Star/ruZ; Star you and Ruby need to get a ROOM their freaky ahh and your bum ahh can go into that room at the end of the hallway okay? ok...
+
+Ruby/Noli; HELLO RUBY THE RUBYYYYYY YOU'RE SO AMAZING NOLING NOLI I EVER NOLIED
+
+Joel/Felix; HELLO UNCY UNC UNC please dont shit your pants cause it not fun unc... when you find me and it at a restraunt game in roblox.......
+
+Rain; I ion even know what to tell you Raining rains rains..... BUT THANKS YOU FOR YOUR BIG BRAINS BLEEEE
+
+Gomez/Lucio; Gomez you're a fraud
+
+Bog/Rock; HELLO BOG YOU'E SO FREAKING COOL YEAHEHASNJFHBGSBNJ GLORY TO N CORP!!!!!!!!
+
+Sleepy/Sleepie HELLO SLEEPIE YOU'RE SO FRIGGIN TUFF AND YOUR ART IS SO EPICSSCSCANJHBDSUHJ
